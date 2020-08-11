@@ -1,4 +1,4 @@
-Name : Jisha Paul
+Name : JISHA PAUL
 
 Favorite animal :cat
 
